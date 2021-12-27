@@ -1,5 +1,5 @@
-Neuroscience Student at University of Trieste
-A girl of many interests, but just curious.
+- Neuroscience Student at University of Trieste.
+- 
 
 
 
